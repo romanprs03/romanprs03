@@ -3,4 +3,4 @@
 
 ### 📫 How to reach me romanprs130@gmail.com.
 
-#### [![Linkedin](https://ar.linkedin.com/in/roman-parisi-57401b29b)
+#### [![Linkedin]((https://i.stack.imgur.com/gVE0j.png) LinkedIn](https://ar.linkedin.com/in/roman-parisi-57401b29b)
